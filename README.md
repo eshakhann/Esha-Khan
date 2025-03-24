@@ -4,7 +4,7 @@ Hi there 👋 I'm Esha Khan
 💻 Aspiring UI/UX Designer & Front-End Developer  
 🎓 Computer Science Student | International Islamic University Islamabad  
 🌟 Volunteer at Shaukat Khanum | Member of MLSA Islamabad  
-📫 Reach me at: esha.bscs4793@iiu.edu.pk  
+📫 Reach me at: eshakhan2304@gmail.com  
 
 ---
 
